@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I think I'm Funny🤪**
 
-<img align="right" alt="Coding" width="500" src="https://linkpicture.com/q/4ad4fef79c0097177e379df350a9c3ee-removebg-preview-removebg-preview-1.png">
+<img align="right" alt="Coding" width="500" src="https://linkpicture.com/q/4ad4fef79c0097177e379df350a9c3ee-removebg-preview-removebg-preview-2.png">
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/shruti-mishra28" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="shruti-mishra28" height="30" width="40" /></a>
