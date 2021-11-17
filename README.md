@@ -10,7 +10,7 @@
 - 📫 How to reach me **mshruti624@gmail.com**
 <img align="right" alt="Coding" width="500" src="https://linkpicture.com/q/4ad4fef79c0097177e379df350a9c3ee-removebg-preview-removebg-preview-2.png">
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sP3xfgL8OErjB_x5GJa9U4D0kIDx4Bfm/view?usp=drivesdk](https://drive.google.com/file/d/1sP3xfgL8OErjB_x5GJa9U4D0kIDx4Bfm/view?usp=drivesdk)
+- 📄 Know about my experiences [https://shor.at/LlZpd4J8](https://shor.at/LlZpd4J8)
 
 - ⚡ Fun fact **I think I'm Funny🤪**
 
